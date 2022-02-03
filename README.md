@@ -7,3 +7,10 @@ API que irá traduzir os algarísmos romanos
 • Mais uma mamolação
 
 • Peido de gatorra
+
+•alskçdalk
+
+•alçsdalsçk
+
+• testando hehe
+
